@@ -1,4 +1,7 @@
-## Hi >.< ![GoingCrazyMrBossGIF (2)](https://github.com/user-attachments/assets/2ed12235-64f1-4ff1-81c5-d0084653bf7e)
+## Hi >.< 
+
+![image](https://github.com/user-attachments/assets/a3820298-f490-47d9-b386-06da011b32aa)
+
 
 ![GoingCrazyMrBossGIF (2)](https://github.com/user-attachments/assets/2ed12235-64f1-4ff1-81c5-d0084653bf7e)
 
