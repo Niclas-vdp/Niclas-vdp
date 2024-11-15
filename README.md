@@ -1,5 +1,7 @@
 ## Hi >.<
-![image](https://github.com/user-attachments/assets/cbc01338-0339-4e98-ae6c-ae2ca9fda89d)
+
+![GoingCrazyMrBossGIF (2)](https://github.com/user-attachments/assets/2ed12235-64f1-4ff1-81c5-d0084653bf7e)
+
 
 <!--
 **Niclas-vdp/Niclas-vdp** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
